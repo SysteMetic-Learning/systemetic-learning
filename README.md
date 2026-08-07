@@ -1,3 +1,3 @@
 # SysteMetic by Saheli Basu
 
-Visit: [## Payhip ](https://payhip.com/SysteMeticbySaheliBasu)
+Visit the [SysteMetic Learning Academy](https://payhip.com/SysteMeticbySaheliBasu) — hosted on Payhip.
